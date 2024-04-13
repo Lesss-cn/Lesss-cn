@@ -3,5 +3,5 @@
 - 🌱 I'm currently learning the front-end
 - 💞️ I hope to be in...
 - 📫 How to contact me: lesss@tuta.io
-- 😄 Pronouns:
+- 😄 Pronouns: The answer may be in the future.
 - ⚡ Fun fact: ......
